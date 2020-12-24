@@ -1,0 +1,5 @@
+## The Effective use of Technology in Modern Life
+
+### Introduction
+
+Ever heard of the phrase "Technology should improve your life, not become your life"? Today, we live among the hustle and bustle of modern life where many manual operations of the past have been mechanized. Let us reflect on the ethereal happenings around materials that we produce from nature and how it affects our lives. In the lecture Modern Psychic Science, we are informed that "when a person makes use of a table, or a glass, or indeed of any gross material object, he thus enters upon the battle-ground which is familiar to the Darkness." Other gross material objects could be our mobile devices and computers. When we use them, we provide the opportunity for our spirit to connect with the frequencies of these devices and the entities that vibrate in those frequencies. In this reflection forum, we will discuss the use of technology and the growth of the human spirit in relation to the frequencies of manmade materials. Having the right understanding of technology (manmade materials), recognizing the dangers, and staying in control is essential to the optimization of processes in modern life.
